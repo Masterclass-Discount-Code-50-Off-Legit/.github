@@ -1,4 +1,4 @@
-# Masterclass Discount Code May 2025: Get 50% Off Coupon (Verified)
+# Masterclass Discount Code June 2025: Get 50% Off Coupon (Verified)
 
 If you’ve been hunting for a **[MasterClass discount code](https://masterclass.pxf.io/n1dJ5a)**, MasterClass student discounts, promo codes, or any deals to save on your favorite courses, you’re in the right place.
 
